@@ -1,2 +1,0 @@
-# ihajaina
-efa mety eh
